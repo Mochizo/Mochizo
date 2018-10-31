@@ -1,2 +1,2 @@
 # Mochizo
-bad
+LOL
